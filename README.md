@@ -5,4 +5,4 @@
   ![image](https://github.com/user-attachments/assets/a8cd6b9f-eb5a-4784-9ec1-2d1280b5ef93)
 
   ## Fun fact!
-  Ciperouy is in fact Smokeyyz!
+   Discord user 733522199641718884 is in fact Smokeyyz!
